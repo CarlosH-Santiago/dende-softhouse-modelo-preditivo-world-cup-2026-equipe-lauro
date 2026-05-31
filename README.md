@@ -1,0 +1,1 @@
+# dende-softhouse-modelo-preditivo-world-cup-2026-equipe-lauro
